@@ -1,16 +1,13 @@
-## Hi there 👋
+### Boas Vindas ao meu perfil💙
 
-<!--
-**JaqLauri/JaqLauri** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+Meu nome é Jaqueline Lauri
 
-Here are some ideas to get you started:
+- Estou estudado o [alura](https//:www.alura.com.br)
+- Estou aprendendo sobre marketing
+- Procuro um emprego nessa área
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+### Voce pode entra em contato cmg pelo meu e-mail📧
+
+00001098570947sp@al.educacao.sp.gov.br
+
+![](https://media.tenor.com/nX3BdES-doYAAAAi/timao.gif)
