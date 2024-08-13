@@ -8,6 +8,6 @@ Meu nome é Jaqueline Lauri
 
 ### Voce pode entra em contato cmg pelo meu e-mail📧
 
-00001098570947sp@al.educacao.sp.gov.br
+00001110176867sp@al.educacao.sp.gov.br
 
 ![](https://media.tenor.com/nX3BdES-doYAAAAi/timao.gif)
